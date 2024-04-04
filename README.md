@@ -3,6 +3,7 @@
 I'm currently a third year undergraduate at the University of Toronto's iSchool pursuing a Bachelor of Information.
 
 Chat with me
+
 💬 Linkedin: www.linkedin.com/in/shirleychen003
 
 <!--
