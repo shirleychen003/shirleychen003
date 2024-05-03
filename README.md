@@ -7,6 +7,7 @@ In my spare time, you'll probably find me thrifting (I love fashion), listening 
 Chat with me!
 
 💬 Linkedin: www.linkedin.com/in/shirleychen003
+
 💌 Email: sshirleyy.chen@mail.utoronto.ca
 
 <!--
