@@ -7,6 +7,7 @@ In my spare time, you'll probably find me thrifting (I love fashion), listening 
 Chat with me!
 
 💬 Linkedin: www.linkedin.com/in/shirleychen003
+💌 Email: sshirleyy.chen@mail.utoronto.ca
 
 <!--
 **shirleychen003/shirleychen003** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
